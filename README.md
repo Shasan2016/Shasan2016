@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shasan2016
+- 👋 Hi, I’m Syed
 - 📫 How to reach me ...
 
 <!---
